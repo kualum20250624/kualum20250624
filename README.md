@@ -1,16 +1,66 @@
-## Hi there 👋
+# heiliao2025
+黑料网-0624-黑料不打烊入口|Telegram频道传送门|74猫导航主站|74猫传送门|78黑料网|51吃瓜|黑料曝料网|黑料大事记|黑料大爆料|黑料网导航|国产吃瓜|黑料|今日吃瓜在线|881比鸭
 
-<!--
-**kualum20250624/kualum20250624** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+黑料大事记，专注于整理娱乐圈与网红圈历史重大黑料事件，按时间线全面呈现爆料经过与舆论发展。内容真实详尽，覆盖广泛，帮助吃瓜群众回顾每一次热点风波，是了解八卦演变过程的权威资料平台。
 
-Here are some ideas to get you started:
+** 主要地址：<a href="https://74mao.com/">74猫传送门</a>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+点击访问：七四猫福利导航<a href="https://74mao.com/">（74mao.com）</a>
+
+点击访问：<a href="https://74mao.com/">74猫导航主站</a>
+
+点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
+
+点击访问：<a href="https://hl187.pages.dev/">黑料社区</a>
+
+点击访问：<a href="https://hj-100.pages.dev/">51视频网站</a>
+
+点击访问：<a href="https://cg9-11.pages.dev/">吃瓜视频</a>
+
+点击访问：<a href="https://cg8-13.pages.dev/">社区吃瓜</a>
+
+点击访问：<a href="https://hj-1154.pages.dev/">海角在线</a>
+
+点击访问：<a href="https://cg7-12.pages.dev/">吃瓜天堂官网</a>
+
+点击访问：<a href="https://hj-288.pages.dev/">海角系列</a>
+
+点击访问：<a href="https://cg6-13.pages.dev/">瓜圈网</a>
+
+点击访问：<a href="https://hj-1217.pages.dev/">海角黑料</a>
+
+点击访问：<a href="https://hj-249.pages.dev/">海角论坛官网</a>
+
+点击访问：<a href="https://hl191.pages.dev/">娱乐圈最大瓜</a>
+
+点击访问：<a href="https://hl188.pages.dev/">黑料网</a>
+
+点击访问：<a href="https://cg4-13.pages.dev/">全网吃瓜</a>
+
+点击访问：<a href="https://hj-69.pages.dev/">海角回家地址</a>
+
+点击访问：<a href="https://cg10-12.pages.dev/">51在线吃瓜</a>
+
+点击访问：<a href="https://50dh-02.pages.dev/">50度灰</a>
+
+点击访问：<a href="https://hls-02.pages.dev/">黑料社</a>
+
+主要内容：
+
+今日吃瓜在线：实时聚合全网最新娱乐八卦、网红黑料与突发爆料，快速更新、内容劲爆，是网友高效掌握每日热门瓜讯的快捷入口。
+
+51吃瓜：专注娱乐圈动态与网络热议事件，每日更新明星绯闻与网红黑料。内容新鲜犀利，是吃瓜群众追踪八卦、掌握猛料的热门资讯站。
+
+黑料：深度挖掘娱乐圈与网红界的内幕消息，涵盖绯闻爆料、网络争议等热门话题。内容更新及时，是想看真相、了解内幕的首选平台。
+
+74猫传送门：集成最新娱乐黑料、网络热点与八卦内容，一键直达各大吃瓜平台，方便用户迅速获取一手爆料与流量事件。
+
+74猫导航主站：整合全网高热度八卦资讯与黑料站点，实时同步娱乐圈动态，助你快速定位爆料源头，打造一站式吃瓜导航平台。
+
+Telegram频道传送门：汇聚各类热门Telegram频道入口，涵盖资讯、娱乐、资源等优质内容，一键直达精彩频道，轻松发现你感兴趣的内容世界。
+
+社会影响：
+
+通过系统梳理娱乐与网红界的重大爆料事件，从事件爆发到舆论发酵，时间线清晰，内容详实可信。不仅记录每一次话题漩涡的源头，更帮助吃瓜群众回顾历史大瓜，是了解圈内风波真相的理想参考工具。
+
+[Canonical link]( https://github.com/kualum20250624/kualum20250624 ）
